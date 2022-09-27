@@ -1,3 +1,5 @@
+# About me :
+
 👋 Hi, I’m @EJzinho
 
 👀 I’m interested in learning about technology!
